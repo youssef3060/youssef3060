@@ -30,5 +30,8 @@ I draw inspiration from Egypt's ancient history and love incorporating subtle cu
 Freelance  
 Collaboration  
 Full-time Job  
-Part-time Job📍 Location: Egypt
+Part-time 
+
+Job📍
+Location: Egypt
 
