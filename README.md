@@ -21,6 +21,7 @@ Team-based app development opportunities.
 
 😄 Pronouns
 He/Him
+
 ⚡ Fun Fact
 I draw inspiration from Egypt's ancient history and love incorporating subtle cultural elements into my app designs!
 
